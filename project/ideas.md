@@ -17,7 +17,7 @@ he doesn't have to steal his sisters' sim card
 
 so if he can play pg on his own accord, it will increae motiviation to walk around
 
-and he can go without owrry, because calling/texting
+and he can go without worry, because calling/texting
 
 Roan is almost 15 years old – that's 3 years till he's legally an adult, no worry, sister got a long time ago, 
 
